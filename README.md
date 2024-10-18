@@ -1,2 +1,2 @@
 # Charles-Gosda
-charles likes tacos 🌮 
+charles likes tacos 🌮 and wall hopping
